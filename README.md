@@ -15,7 +15,7 @@
 
 ## 🚀 همین حالا امتحان کن
 
-👉 **[+lifeBOSPro رو باز کن](https://bagherjoy0660.github.io/lifebos-pro-v7.6.2/)**
+👉 **[+lifeBOSPro رو باز کن](https://bactecjoy.github.io/lifebos-pro-v7.6.2/)**
 
 > بدون ثبت‌نام، مستقیم توی مرورگر استفاده کن یا روی گوشیت نصبش کن (Add to Home Screen).
 
